@@ -1,3 +1,2 @@
-☯★NO I am Awesome ☯★
-☯★NO I am Awesome ☯★
-☯★NO I am Awesome ☯★
+☯★Yes, I am Awesome ☯★
+ЄЭ Jes mi estas, miranda ЄЭ
